@@ -19,8 +19,8 @@ le lecteur dans le monde de l'histoire, grâce aux éditions MinaLima cette exp�
 
 Sans trop vous spoiler, voici quelques images du tome 1 d'Harry Potter :
 
-[image](images/ILLUhp.jpg)
+![image](images/ILLUhp.jpg)
 
-[image](images/HPillu2.jpg)
+![image](images/HPillu2.jpg)
 
-[image](images/HPillu3.jpg)
+![image](images/HPillu3.jpg)
