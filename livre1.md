@@ -3,9 +3,10 @@
 ![image](images/PTNDECHAT1.jpg)
 
 **Vous aimez les chats? Ce livre est fait pour vous!**
-Paru en 2019 aux éditions Kennes, cette BD écrite et illustrée par Lapuss' est à se tordre de rire. 
-Attention à ne pas se fier aux apparences, cette BD n'est en aucun cas pour les enfants!
+Paru en 2019 aux éditions Kennes, cette BD écrite et illustrée par Lapuss' est à se tordre de rire.
+Attention à ne pas se fier aux apparences, cette BD n'est en aucun cas pour les enfants !
 Dans un style mélant dessins simples et écriture à l'humour grincant, Lapuss' nous raconte ce que nous cachent nos félins préférés.
+
 Les chats sont bien connu comme étant certes de véritables boules d'amour mais également de grand vicieux,
 c'est ce deuxième aspect que nous montre l'auteur, rendant nos adorables boules de poils vulgaires et hautaines tout en réussissant à leur laisser 
 leur mignonnerie.
