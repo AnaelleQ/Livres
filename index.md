@@ -6,3 +6,4 @@ Retrouvez sur ce site trois recommandation de livres qui selon valent le coup d'
 
 [Putain de chat](livre1.md)
 [Les sorcières de la République](livre2.md)
+[Harry Potter par les éditions MinaLima](livre3.md)
