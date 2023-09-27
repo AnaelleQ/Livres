@@ -21,3 +21,4 @@ Sans trop vous spoiler, voici quelques images du tome 1 d'Harry Potter :
 
 [image](images/ILLUhp.jpg)
 
+[image](images/HPillu2.jpg)
