@@ -1,4 +1,4 @@
-##Putain de chat, Lapuss'
+## Putain de chat, Lapuss'
 
 ![image](images/PTNDECHAT1.jpg)
 
@@ -15,7 +15,7 @@ Je vous laisse découvrir en image un cours échantillion de ce qui vous attend 
 
 ![image](images/ILLUPTNDECHAT1.jpg)
 
-Vous avez déjà dévorer les 11 livres et vous ne pouvez plus vous en passer ? Bonne nouvelle, *Putain de chat* se renouvelle dans une autre série de livre !**
+**Vous avez déjà dévorer les 11 livres et vous ne pouvez plus vous en passer ? Bonne nouvelle, *Putain de chat* se renouvelle dans une autre série de livre !**
 Pour votre plus grand plaisir Lapuss' s'ssocie à Tartuff afin de nous livrer une bd toujours aussi pertinente mais dorénavant sous forme de conte et illustrée de 
 jolies aquarelles colorée ! Venez découvrir ce merveilleux conte aux doux prix de 12€ qui saura vous charmer !
 
