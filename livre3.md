@@ -2,6 +2,8 @@
 
 ** Vous êtes fan d'Harry Potter ? Vous ne pouvez pas passer à côté de ce livre ! ** 
 
+![image](images/HP.jpg)
+
 Harry Potter est clairement * la * série de livres (et de films), vous pensez sûrement avoir fait le tour de la licence : ET BIEN NON ! 
 Les éditions Minalima ont réinvanter les livres pour le grand plaisir de petits et grands ! 
 
