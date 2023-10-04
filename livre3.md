@@ -19,7 +19,7 @@ Sans trop vous spoiler, voici quelques images du tome 1 d'Harry Potter par MinaL
 
 ![image](images/HPillu2.jpg) ![image](images/HPillu3.jpg)
 
-Au prix de 39€ cette nouvelle série de livres est bien plus coûteuse qu'une version poche classique, c'est malheureusement le prix à payer pour de magnifiques illustartions en 2D ou en 4D... Néanmoins ça peut être une super idée pour un cadeaux de noël ou d'anniversaire !
+Au prix de 39€ cette nouvelle série de livres est bien plus coûteuse qu'une version poche classique, c'est malheureusement le prix à payer pour de magnifiques illustartions en 2D ou en 4D... Néanmoins, ça peut être une super idée pour un cadeaux de noël ou d'anniversaire !
 
 **LIENS EXTERNES**
 
