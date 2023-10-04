@@ -15,8 +15,7 @@ Les Français vont enfin connaître la vérité sur le Grand Blanc…"
 
 Ce roman distopique est à la fois poignant et tordant et son histoire vous emmenera dans un monde en proie à un procès hors du commun.  
 Ne vous méprenez pas, ce livre n'est pas une critique ou un avertissement sur les dérives du feminisme !  
-Chloé Delaume a bel et bien réussi à écrire une fiction aux valeurs féminisme dans un monde distopique "à cause"  
-du féminisme. 
+Chloé Delaume a bel et bien réussi à écrire une fiction aux valeurs féminisme dans un monde distopique "à cause" du féminisme. 
 Outre le procès en lui même vous pourrez découvrir des journalistes tel qu'il n'en existe pas ailleurs mais aussi d'hilarants échanges de mails entre une déesse et Jésus. 
 Personnellement la lecture de ce livre m'a remémoré la lecture de *L'Ecume des jours* de Boris Vian qui est un livre certes perché mais également drôle et touchant et ce sont des sentiments que nous ressentons en lisant *Les sorcières de la République*.
 Bref pour 7€ Chloé Delaume vous prommait une séance de lecture que vous n'oublierez jamais.  
