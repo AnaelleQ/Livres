@@ -13,8 +13,7 @@ Vivez comme jamais auparavant l'aventure du plus célèbre des sorciers ! "
 
 Les éditions MinaLima sont fondés par Miraphora Mina et Eduardo Lima qui se spécialisent dans l'édition de livres *Pop-Up*, ils ullustrent les différents livres Harry Potter mais aussi d'autres contes comme *Peter Pan* ou  
 *La Belle et la Bête*.  
-Les livres "pop-up" ou "animés" sont populaires au près des enfants, le volume créé par l'ouverture de la page plonge directement le lecteur dans le monde de l'histoire, grâce aux éditions MinaLima cette expérience hors du commun  
-se démocratise chez les plus grands !  
+Les livres "pop-up" ou "animés" sont populaires au près des enfants, le volume créé par l'ouverture de la page plonge directement le lecteur dans le monde de l'histoire, grâce aux éditions MinaLima cette expérience hors du commun se démocratise chez les plus grands !  
 
 Sans trop vous spoiler, voici quelques images du tome 1 d'Harry Potter par MinaLima :
 
