@@ -24,3 +24,11 @@ Sans trop vous spoiler, voici quelques images du tome 1 d'Harry Potter :
 ![image](images/ILLUhp.jpg)
 
 ![image](images/HPillu2.jpg) ![image](images/HPillu3.jpg)
+
+**LIENS EXTERNES**
+
+[Putain de chat](livre1.md)
+
+[Les sorcières de la République](livre2.md)
+
+[PAGE D'ACCUEIL](index.md)
