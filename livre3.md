@@ -1,7 +1,6 @@
 # Harry Potter  
 
-
-## **Vous êtes fan d'Harry Potter ? Vous ne pouvez pas passer à côté de ce livre !** 
+## Vous êtes fan d'Harry Potter ? Vous ne pouvez pas passer à côté de ce livre !
 
 ![image](images/HP.jpg)
 
