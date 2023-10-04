@@ -2,7 +2,7 @@
 
 ![image](images/livres.jpg)
 
-Retrouvez sur ce site trois recommandation de livres qui selon valent le coup d'être lus!
+Retrouvez sur ce site trois recommandation de livres qui selon moi valent le coup d'être lus!
 
 [Putain de chat](livre1.md)
 
