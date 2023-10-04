@@ -1,6 +1,6 @@
-## Harry Potter
+# Harry Potter
 
-# **Vous êtes fan d'Harry Potter ? Vous ne pouvez pas passer à côté de ce livre !** 
+## **Vous êtes fan d'Harry Potter ? Vous ne pouvez pas passer à côté de ce livre !** 
 
 ![image](images/HP.jpg)
 
@@ -9,7 +9,7 @@ Les éditions Minalima ont réinvanter les livres pour le grand plaisir de petit
 
 "Découvrez ou redécouvrez le texte intégral de J.K. Rowling avec de sublimes illustrations en couleurs et huit surprises animées :  ouvrez la lettre de Poudlard, parcourez le Chemin de Traverse, faites apparaître un festin  
 dans la Grande Salle...  
-Vivez comme jamais auparavant l'aventure du plus célèbre des sorciers ! "  
+Vivez comme jamais auparavant l'aventure du plus célèbre des sorciers !"  
 
 Les éditions MinaLima sont fondés par Miraphora Mina et Eduardo Lima qui se spécialisent dans l'édition de livres *Pop-Up*, ils ullustrent les différents livres Harry Potter mais aussi d'autres contes comme *Peter Pan* ou  
 *La Belle et la Bête*.  
