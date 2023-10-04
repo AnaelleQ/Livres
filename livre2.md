@@ -4,7 +4,7 @@
 
 ## Changement de registre mais toujours aussi bien, je vous invite à découvrir l'un de mes livres favoris !
 
-Découvrez d'abord le résumé :
+Découvrez d'abord le résumé : 
 
 "En 2020, la France choisit l’amnésie collective.  
 Les trois années écoulées sont effacées des mémoires : la prise de pouvoir  
