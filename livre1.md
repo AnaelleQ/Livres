@@ -23,3 +23,13 @@ sous forme de conte et illustrée de jolies aquarelles colorée !
 Venez découvrir ce merveilleux conte aux doux prix de 12€ qui saura vous charmer !  
 
 ![image](images/PTNdeconte.jpg)
+
+
+
+**LIENS EXTERNES**
+
+[Les sorcières de la République](livre2.md)
+
+[Harry Potter par les éditions MinaLima](livre3.md)
+
+[PAGE D'ACCUEIL](index.md)
