@@ -18,3 +18,12 @@ hors du commun.
 Outre le procès en lui même vous pourrez découvrir des journalistes tel quil n'en existe pas ailleurs mais aussi d'hilarants  
 échange de mail entre une déesse et Jésus.  
 Bref pour 7€ Chloé Delaume vous prommait une séance de lecture que vous n'oublierez jamais.  
+
+
+**LIENS EXTERNES**
+
+[Putain de chat](livre1.md)
+
+[Harry Potter par les éditions MinaLima](livre3.md)
+
+[PAGE D'ACCUEIL](index.md)
