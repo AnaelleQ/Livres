@@ -2,7 +2,7 @@
 
 ![image](images/LesSorcieres.jpg)
 
-Changement de registre mais toujours aussi bien, je vous invite à découvrir l'un de mes livres favoris !
+## Changement de registre mais toujours aussi bien, je vous invite à découvrir l'un de mes livres favoris !
 
 Découvrez d'abord le résumé :
 
