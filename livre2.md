@@ -13,10 +13,8 @@ après des millénaires de domination masculine.
 Quarante-deux plus tard s’ouvre le procès de la fondatrice du Parti.  
 Les Français vont enfin connaître la vérité sur le Grand Blanc…"  
 
-Ce roman distopique est à la fois poignant et tordant et son histoire vous emmenera dans un monde en proie à un procès  
-hors du commun.  
-Outre le procès en lui même vous pourrez découvrir des journalistes tel quil n'en existe pas ailleurs mais aussi d'hilarants  
-échange de mail entre une déesse et Jésus.  
+Ce roman distopique est à la fois poignant et tordant et son histoire vous emmenera dans un monde en proie à un procès hors du commun.  
+Outre le procès en lui même vous pourrez découvrir des journalistes tel quil n'en existe pas ailleurs mais aussi d'hilarants échange de mail entre une déesse et Jésus.  
 Bref pour 7€ Chloé Delaume vous prommait une séance de lecture que vous n'oublierez jamais.  
 
 
