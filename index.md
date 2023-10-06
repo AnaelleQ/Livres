@@ -1,6 +1,6 @@
 # MES 3 LIVRES PRÉFÉRÉS ET POURQUOI ? 
 
-![image](images/banière6.jpg)
+![image](images/banièreLivres.jpg)
 
 ## Retrouvez sur ce site trois recommandations de livres qui selon moi valent le coup d'être lus ! 
 
