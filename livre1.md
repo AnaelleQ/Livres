@@ -9,7 +9,7 @@ Dans un style mélant dessins simples et écriture à l'humour grincant, Lapuss'
 
 Les chats sont bien connus comme étant certes de véritables boules d'amour mais également de grand vicieux, c'est ce deuxième aspect que nous montre l'auteur, rendant nos adorables boules de poils vulgaires et hautaines tout en réussissant à leur laisser leur mignonnerie.  
 Cette serie de courtes BD au mini prix de 9€ se compose aujourd'hui de 11 livres soit un total de plus ou moins 600 pages de   pur plaisir.  
-Je vous laisse découvrir en image un cours échantillion de ce qui vous attend dans le tomme 1, de quoi vous donner envie de foncer l'acheter !  
+Je vous laisse découvrir en image un cours échantillion de ce qui vous attend dans le tome 1, de quoi vous donner envie de foncer l'acheter !  
 *(Psst: un surprise vous attend en dessous de la photo)*  
 
 ![image](images/ILLUPTNDECHAT1.jpg)
